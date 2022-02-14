@@ -5,4 +5,4 @@
 😃 - I can help you with front-end and back-end.
 
 📧 - Contacts: Email | samuelakira.v@gmail.com
-                (https://www.linkedin.com/in/samuel-takagi-9667271ab/) [LinkedIn]
+                LinkedIn | https://www.linkedin.com/in/samuel-takagi-9667271ab/ 
